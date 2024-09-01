@@ -7,3 +7,4 @@ UI遵循好看的Material Design<br>
 **都是baka！baka可爱！baka使世界和平！**<br>
 我们至今仍未知道，手动选中500个文章需要何种抛瓦<br>
 SO HERE BAKA is the storm that is approooooooooaching（bushi
+以及我现在版权声明什么的什么都不会这些等会再处理吧（逃走
